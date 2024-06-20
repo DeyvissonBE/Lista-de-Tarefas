@@ -1,3 +1,3 @@
 Lista de tarefas basica. 
 
-APrecie e de um joinha :)
+Aprecie e de um joinha :)
